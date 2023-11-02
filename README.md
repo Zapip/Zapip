@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **zafif3165@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1kwLFkMd08LfCXIDxhdgcQcXumGLsMZNB/view](https://drive.google.com/file/d/1kwLFkMd08LfCXIDxhdgcQcXumGLsMZNB/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1kwLFkMd08LfCXIDxhdgcQcXumGLsMZNB/view](https://drive.google.com/file/d/1WlUKUV-5x-KgcGQGndUBvhSldSayq0-x/view?usp=sharing)
 
 - ⚡ Fun fact **I think I Handsome, Just kidding 🤣**
 
