@@ -19,7 +19,7 @@ Fresh Graduate in Informatics Engineering Education with hands-on experience in 
 
 * 💬 Ask me about **Frontend Development, Web Development, UI/UX Design, and Technology**
 
-* 📫 How to reach me **[zafif3165@gmail.com](mailto:zafif3165@gmail.com)**
+* 📫 How to reach me **[zafif.kerja@gmail.com](mailto:zafif.kerja@gmail.com)**
 
 * 📄 Know more about my <a href="https://drive.google.com/file/d/13GK5rKVXlh0pwfAG9_pMgUeg9ajcXBFZ/view?usp=sharing"><b>experience</b></a>
 
